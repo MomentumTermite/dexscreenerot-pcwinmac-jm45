@@ -1,4 +1,4 @@
-# 
+# Seguro dexscreener sniper bot plantillas para Mac OS | Nativo dexscreener sniper bot plantillas para PC Windows. Con ejecución rápida y manipulación de nonce — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
